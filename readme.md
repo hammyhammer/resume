@@ -1,0 +1,1 @@
+Created a short resume and description about myself. 
